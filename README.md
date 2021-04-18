@@ -1,3 +1,3 @@
 # TheShitPostersIntro
 
-Abud html kid <3 stuffz
+<!--Abud html kid <3 stuffz-->
